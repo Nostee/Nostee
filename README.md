@@ -2,6 +2,6 @@
 - 👀 I’m interested in anime, art, video games and coding!
 - 🌱 I’m currently learning Python.
 - 💞️ I’m looking to collaborate on any project that I can learn something new!
-- 📫 You can reach me at my email: jedidiahdavidcalayag@gmail.com
+- 📫 You can reach me with my email: jedidiahdavidcalayag@gmail.com
 
 
